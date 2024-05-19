@@ -1,0 +1,1 @@
+without dividend codes
